@@ -2,4 +2,5 @@
 
 1. Fon E. Noel NFEBE
 2. Kambang St. Claire
-5. Ngoh ROnaldo
+3. Kamdemi Ael Luderic
+4. Ngoh ROnaldo
